@@ -1,1 +1,3 @@
-# entomologist-in-sichuan-tang-clan
+# Entomologist In Sichuan Tang Clan
+Spicy Fabre, un streamer d’un million d’abonnés connu pour ses connaissances sur les poisons et les insectes venimeux, a été mordu par un mamba noir lors d’un live en Afrique et s’est ensuite réincarné dans un monde de Murim.
+Désormais dans une jungle où il élève des insectes venimeux, le streamer a attiré l’attention du clan Tang du Sichuan, réputé pour sa maîtrise des arts du poison, qui le réclame.
